@@ -41,7 +41,6 @@ For **commercial inquiries**, contact:
 ![image_29](29.jpg)
 ![image_30](30.jpg)
 ![image_31](31.jpg)
-![image_32](32.jpg)
 ![image_33](33.jpg)
 ![image_34](34.jpg)
 ![image_35](35.jpg)
