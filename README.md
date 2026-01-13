@@ -7,7 +7,7 @@ Feel free to download and use these images for **non-commercial purposes**.
 Please do not forget to **acknowledge the source**.
 
 For **commercial inquiries**, contact:  
-📧 dr.andresinzunza@gmail.com
+EMAIL: dr.andresinzunza@gmail.com
 
 
 ![image_1](1.jpg)
