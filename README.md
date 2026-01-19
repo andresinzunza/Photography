@@ -11,6 +11,7 @@ EMAIL: dr.andresinzunza@gmail.com
 
 
 ![image_1](1.jpg)
+![image_gaby_retrato](gaby_retrato.jpg)
 ![image_36](36.jpg)
 ![image_11](11.jpg)
 ![image_24](24.jpg)
